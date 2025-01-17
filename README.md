@@ -164,6 +164,9 @@
 
 ## No.11 在这一系列的教学服务下，越来越多的学员找到工作，没有给一些割韭菜的社区生存空间，才导致他们无所不用其极的专业培训人员水军去截流C2E社区的关注者。相信很多人都体验过他们的无耻，只要有新人进社区或者抖音群就有人私信他们，发布恶意捏造没有任何证据的诋毁的帖子，混淆视听。
 （截流发布谣言的截图）
+
+
+
 ![image](https://github.com/user-attachments/assets/fe368da5-f682-4d70-a2fe-c3a3d2c25bd0)
 ![image](https://github.com/user-attachments/assets/6e6f63f0-5a6a-4e9b-a0f9-daa636d01be3)
 
