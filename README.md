@@ -119,6 +119,7 @@
 ## No.8 每一位老师都是资深Web3开发工程师
 （老师截图）
 
+![1](https://github.com/user-attachments/assets/849c6049-7d4b-43f8-bb72-ba60d6b169f9)
 
 
 
