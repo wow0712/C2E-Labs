@@ -92,9 +92,13 @@
 （线下办公场景：门头、员工）
 
 
+![c278589d-da00-4b95-99e3-f4a7eb007c99](https://github.com/user-attachments/assets/d286686d-b54e-4e27-8ad9-0320c33fae43)
 
+![企业微信截图_20250117210153](https://github.com/user-attachments/assets/3a645456-826b-47ae-8672-68258cf8f1c2)
 
+![企业微信截图_20250117210205](https://github.com/user-attachments/assets/d774f873-06ce-4cbe-8a9e-9f0f4833e623)
 
+![企业微信截图_20250117210228](https://github.com/user-attachments/assets/705ad66c-2743-46db-a331-d3fb9a5b269e)
 
 
 ## No.7 并且不定期的组织线下程序员交流会的，有没有报名的学员都可以参加
