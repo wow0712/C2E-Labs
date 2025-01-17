@@ -104,8 +104,6 @@
 
 ![企业微信截图_20250117210153](https://github.com/user-attachments/assets/3a645456-826b-47ae-8672-68258cf8f1c2)
 
-![企业微信截图_20250117210205](https://github.com/user-attachments/assets/d774f873-06ce-4cbe-8a9e-9f0f4833e623)
-
 ![企业微信截图_20250117210228](https://github.com/user-attachments/assets/705ad66c-2743-46db-a331-d3fb9a5b269e)
 
 
