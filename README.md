@@ -9,6 +9,8 @@
 ![image](https://github.com/user-attachments/assets/aa4467d4-6187-4846-b313-1797e1e2fae1)
 
 
+
+
 ## No.1 每一个转型成功的学员在C2E社区都可以找的到人。而且转型成功的学员也都会在社区进行学习经验分享互相交流
 ![未命名](https://github.com/user-attachments/assets/a843b376-9e17-4cd4-baec-bad1bb263a0b)
 
@@ -21,6 +23,8 @@
 ![image](https://github.com/user-attachments/assets/2a621393-7559-4121-bc65-90396864855d)
 
 ![1111](https://github.com/user-attachments/assets/0e90e52d-2122-4640-ab7f-7d22ef459c68)
+
+
 
 
 
@@ -75,6 +79,8 @@
 
 
 
+
+
 ![3344](https://github.com/user-attachments/assets/565880f0-4d70-460b-850f-b373eb4db0ff)
 
 
@@ -92,6 +98,8 @@
 （线下办公场景：门头、员工）
 
 
+
+
 ![c278589d-da00-4b95-99e3-f4a7eb007c99](https://github.com/user-attachments/assets/d286686d-b54e-4e27-8ad9-0320c33fae43)
 
 ![企业微信截图_20250117210153](https://github.com/user-attachments/assets/3a645456-826b-47ae-8672-68258cf8f1c2)
@@ -99,6 +107,8 @@
 ![企业微信截图_20250117210205](https://github.com/user-attachments/assets/d774f873-06ce-4cbe-8a9e-9f0f4833e623)
 
 ![企业微信截图_20250117210228](https://github.com/user-attachments/assets/705ad66c-2743-46db-a331-d3fb9a5b269e)
+
+
 
 
 ## No.7 并且不定期的组织线下程序员交流会的，有没有报名的学员都可以参加
@@ -113,6 +123,8 @@
 
 
 ![55555](https://github.com/user-attachments/assets/69472d91-211c-4980-b078-2f3cfa70cddc)
+
+
 
 
 
@@ -156,10 +168,15 @@
 
 
 
+
+
 ## No.10 每一名信任C2E社区的学员都会签订一份约束双方权利义务的合同保证对双方的公平。并不存在什么霸王条款，每位学员使用了多少服务对应多少费用，这就是一份C2E合同，清者自清，每一个有辨别能力的人都可以作出评判
 （合同打码截图
 
 ![image](https://github.com/user-attachments/assets/fe2f3832-f6b7-435a-b591-7789f979c26a)
+
+
+
 
 
 ## No.11 在这一系列的教学服务下，越来越多的学员找到工作，没有给一些割韭菜的社区生存空间，才导致他们无所不用其极的专业培训人员水军去截流C2E社区的关注者。相信很多人都体验过他们的无耻，只要有新人进社区或者抖音群就有人私信他们，发布恶意捏造没有任何证据的诋毁的帖子，混淆视听。
@@ -167,8 +184,13 @@
 
 
 
+
+
 ![image](https://github.com/user-attachments/assets/fe368da5-f682-4d70-a2fe-c3a3d2c25bd0)
 ![image](https://github.com/user-attachments/assets/6e6f63f0-5a6a-4e9b-a0f9-daa636d01be3)
+
+
+
 
 
 
@@ -178,12 +200,18 @@
 
 
 
+
+
+
 ## No.13 大家试想一下，一个正经的企业和个人作着和C2E社区一样的事情，哪有时间去做这些捏造诋毁的事情，正经事都做不过来呢。说的有模有样，实际上漏洞百出，无凭无据。为什么他们这些造谣的信息不敢在国内发呢？因为会受到法律的制裁，选择在github发就是因为不会有人管，也追究不到他们头上。发布者自己知道他们发布的内容是不真实的，也知道恶意捏造诽谤是违法的行为，所以他怕。因为他们试图在国内发过，被警方惩戒过（报警立案截图）。这种蒙蔽不知情者的手段，真实低估了大家的智慧。
 只要接受过C2E社区的学员，都是对社区的服务满意的，很多诋毁的线索就是社区的学员因为看不过去了，主动提供给社区的老师。
 （学员提供线索截图）
 
 ![image](https://github.com/user-attachments/assets/bc898860-6c2e-4696-82b4-4a5e07059802)
 ![image](https://github.com/user-attachments/assets/8ae95ab0-303c-49d2-92f2-42658379cdd4)
+
+
+
 
 
 ## No.14 最受影响的是一些没有体验过社区服务的学员，去买了割韭菜社区的课程，最受后悔的退费无门，又回到C2E社区学习
