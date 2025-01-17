@@ -92,13 +92,6 @@
 （线下办公场景：门头、员工）
 
 
-![image](https://github.com/user-attachments/assets/a060fdb0-01df-4005-a861-ffba334f42d2)
-
-
-![image](https://github.com/user-attachments/assets/cf417e49-9340-4672-bd52-275baee9dd5f)
-
-
-
 
 
 
