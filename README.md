@@ -114,8 +114,9 @@
 ## No.7 并且不定期的组织线下程序员交流会的，有没有报名的学员都可以参加
 （线下交流会截图）
 
-![a9a21dfa-9432-4af4-a68c-3974874cc35f](https://github.com/user-attachments/assets/ee56e3ea-de85-470c-be17-4aba5f670598)
 
+
+![a9a21dfa-9432-4af4-a68c-3974874cc35f](https://github.com/user-attachments/assets/ee56e3ea-de85-470c-be17-4aba5f670598)
 
 
 
@@ -161,6 +162,8 @@
 ## No.9 每位老师都带了指定的学员，但学员有技术不是负责他的老师擅长的，也会马上匹配对应擅长此技术板块的老师给解答
 （对应截图）
 
+
+
 ![image](https://github.com/user-attachments/assets/d94c3f5c-2f5a-485f-b4da-79d484e097ef)
 ![image](https://github.com/user-attachments/assets/ff30a4a0-6cf7-4264-a224-a1c6e2a9502f)
 ![image](https://github.com/user-attachments/assets/e4d7864a-f3b8-4376-86ee-910c0626f380)
@@ -172,6 +175,8 @@
 
 ## No.10 每一名信任C2E社区的学员都会签订一份约束双方权利义务的合同保证对双方的公平。并不存在什么霸王条款，每位学员使用了多少服务对应多少费用，这就是一份C2E合同，清者自清，每一个有辨别能力的人都可以作出评判
 （合同打码截图
+
+
 
 ![image](https://github.com/user-attachments/assets/fe2f3832-f6b7-435a-b591-7789f979c26a)
 
@@ -196,6 +201,9 @@
 
 ## No.12 本身社区就是为了让大家一起交流经验，互相认识的通道，因为有这种恶心的同行去做这些子虚乌有的事情，导致社区不得已关闭了一些互相沟通的通道。真实造谣一张嘴，辟谣跑断腿。用一种先入为主的假负面消息影响大家视听，在用大量专业水军冒充学员去影响不知情者的判断
 （冒充学员混进社区诋毁言论的截图）
+
+
+
 ![image](https://github.com/user-attachments/assets/68fff07e-c778-4ac2-86d4-c04cc05a3768)
 
 
@@ -216,6 +224,7 @@
 
 ## No.14 最受影响的是一些没有体验过社区服务的学员，去买了割韭菜社区的课程，最受后悔的退费无门，又回到C2E社区学习
 （买了他们课，退费无门、又回到我们社区学习的截图）
+
 
 ![image](https://github.com/user-attachments/assets/7373f8fd-78a2-48b5-a78e-efae07b7b563)
 
