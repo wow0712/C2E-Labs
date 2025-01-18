@@ -5,7 +5,8 @@
  
 （成功学员的个人转型成功对话截图一张、成功学员群聊天截图、成功学员分享会截图、）
  
-![image](https://github.com/user-attachments/assets/10e115aa-9684-446b-887b-cb594bd83dfe)
+![企业微信截图_20250118154755](https://github.com/user-attachments/assets/4b854251-27e6-4cd3-a43c-ab1d13f8f957)
+
 ![image](https://github.com/user-attachments/assets/aa4467d4-6187-4846-b313-1797e1e2fae1)
 
 
