@@ -169,7 +169,8 @@
 ### 发布恶意捏造没有任何证据的诋毁的帖子，混淆视听。
 （截流发布谣言的截图）
 
-![1](https://github.com/user-attachments/assets/54ffb8f8-3cac-4c0e-a8d3-09a50c0114bf)
+![未命名](https://github.com/user-attachments/assets/1e1e4655-ece7-4a2f-9baf-8b42c6f1ea5e)
+
 
 ![2](https://github.com/user-attachments/assets/1ee0a2ac-a997-49cf-8262-53a378b7394f)
 
