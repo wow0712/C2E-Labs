@@ -66,14 +66,6 @@
 
 
 
-![3344](https://github.com/user-attachments/assets/565880f0-4d70-460b-850f-b373eb4db0ff)
-
-
-![image](https://github.com/user-attachments/assets/334c9762-bd27-46e1-bc11-6fe2a22f9bbe)
-
-
-
-
 
 
 
