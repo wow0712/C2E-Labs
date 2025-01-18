@@ -13,6 +13,8 @@
 
 ## No.1 每一个转型成功的学员在C2E社区都可以找的到人。而且转型成功的学员也都会在社区进行学习经验分享互相交流
 
+![1](https://github.com/user-attachments/assets/6ef86041-dd55-4030-aa5b-20e8ad7a67b2)
+![2](https://github.com/user-attachments/assets/35f0a5d3-cbdc-482b-9e8a-67f9ad662e73)
 
 
 
