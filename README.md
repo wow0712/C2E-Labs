@@ -135,12 +135,7 @@
 （对应截图）
 
 
-
-![image](https://github.com/user-attachments/assets/d94c3f5c-2f5a-485f-b4da-79d484e097ef)
-![image](https://github.com/user-attachments/assets/ff30a4a0-6cf7-4264-a224-a1c6e2a9502f)
-![image](https://github.com/user-attachments/assets/e4d7864a-f3b8-4376-86ee-910c0626f380)
-![image](https://github.com/user-attachments/assets/b5fddf33-d9b3-4055-bb6f-39139948b6a6)
-
+![123](https://github.com/user-attachments/assets/b7322011-e350-4c97-b1a6-c562b3b21ca9)
 
 
 
