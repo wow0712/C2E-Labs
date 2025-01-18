@@ -26,10 +26,7 @@
 
 ####   3V1和5v1学员进入社区以后，老师根据学员简历情况进行评估给学员作出针对性的规划转型方向
 
-![答疑1](https://github.com/user-attachments/assets/7cdba84d-bc4c-4489-aa2c-f9fee2f2eb1c)
-![答疑2](https://github.com/user-attachments/assets/a710440f-ab6e-4512-96cb-0b5311f96432)
-![答疑3](https://github.com/user-attachments/assets/f9f258e0-1522-4c11-9594-fa010e2cfab6)
-
+![答疑截图](https://github.com/user-attachments/assets/c8c5d688-f616-46ee-a229-65e3057a2fd7)
 
 
 
