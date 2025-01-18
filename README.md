@@ -100,8 +100,10 @@
 
 
 
-![线下活动](https://github.com/user-attachments/assets/d27eab89-2d63-4873-92d5-c42c5a0cd3cb)
-![线下活动2](https://github.com/user-attachments/assets/bad635e5-cc37-4c4b-a227-5800e3df90c0)
+![线下活动_1](https://github.com/user-attachments/assets/18b8980c-dfb7-4bc7-8d42-3c0bd8cd982e)
+
+![线下活动_2](https://github.com/user-attachments/assets/53257dba-0a66-4926-a6b9-f6777add4d1d)
+
 
 
 
