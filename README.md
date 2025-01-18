@@ -48,9 +48,7 @@
 （猎头优化沟通过程学员满意截图、学员获得面试机会截图、匹配老师模拟面试截图、解决学员工作问题截图） 
 
 
-![321](https://github.com/user-attachments/assets/55cfdc4e-8d9f-4192-b04b-c1c4714bfc61)
-
-
+![C2E](https://github.com/user-attachments/assets/489b17bc-0924-49de-9b4f-7976f1b55be1)
 
 
 
