@@ -89,6 +89,7 @@
 
 ![线下活动_2](https://github.com/user-attachments/assets/53257dba-0a66-4926-a6b9-f6777add4d1d)
 
+# 🧐“W3技术驱动创作经济蓝海”论坛
 
 ![上海线下web3峰会](https://github.com/user-attachments/assets/9a7afc08-1c70-4aa5-a989-b30a713d0b90)
 
