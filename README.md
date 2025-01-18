@@ -67,8 +67,7 @@
 
 
 
-![11](https://github.com/user-attachments/assets/c964cc68-85d1-479a-84f3-6cbe47bdfc1e)
-![22](https://github.com/user-attachments/assets/353a439d-bca6-49da-86d6-fca49500dd16)
+![最年轻的web3学员](https://github.com/user-attachments/assets/46c31137-d6ce-419b-9752-010799c0953a)
 
 
 
