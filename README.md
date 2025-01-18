@@ -98,12 +98,11 @@
 （线下办公场景：门头、员工）
 
 
-
-
-![c278589d-da00-4b95-99e3-f4a7eb007c99](https://github.com/user-attachments/assets/d286686d-b54e-4e27-8ad9-0320c33fae43)
-
-![企业微信截图_20250117210153](https://github.com/user-attachments/assets/3a645456-826b-47ae-8672-68258cf8f1c2)
-
+![a472f06f-04a4-405d-b603-7a63cbdd8f46](https://github.com/user-attachments/assets/db03ee24-29b6-4ca2-8685-60185c967322)
+![9c500b24-97eb-44e8-bf81-adeca33827d9](https://github.com/user-attachments/assets/1333c460-b85c-40ad-b97e-979bb06b0eb7)
+![90bc40e2-1a3d-4a11-b5d0-95a8e8e07bdd](https://github.com/user-attachments/assets/27e9c03b-ca72-4186-8b4b-9878862d29f6)
+![e9d75ca2-d1f4-4f0b-b3db-b2ebd5b5507e](https://github.com/user-attachments/assets/61a91354-ebbb-4549-b4b4-4fb67138d312)
+![f26560b7-76d2-46ee-9a67-7624f3cc0fd6](https://github.com/user-attachments/assets/f7ae50b6-9388-406c-886f-cc04cce063fc)
 ![企业微信截图_20250117210228](https://github.com/user-attachments/assets/705ad66c-2743-46db-a331-d3fb9a5b269e)
 
 
