@@ -204,7 +204,8 @@
 （买了他们课，退费无门、又回到我们社区学习的截图）
 
 
-![image](https://github.com/user-attachments/assets/7373f8fd-78a2-48b5-a78e-efae07b7b563)
+![123](https://github.com/user-attachments/assets/6a474e1c-f0e7-4831-b412-fe19527b713a)
+
 
 
 
