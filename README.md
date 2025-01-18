@@ -100,11 +100,8 @@
 
 
 
-![a9a21dfa-9432-4af4-a68c-3974874cc35f](https://github.com/user-attachments/assets/ee56e3ea-de85-470c-be17-4aba5f670598)
+![线下活动](https://github.com/user-attachments/assets/d27eab89-2d63-4873-92d5-c42c5a0cd3cb)
 
-
-
-![企业微信截图_20250117205406](https://github.com/user-attachments/assets/3ab9fc29-147a-4351-9c7d-6b0e49370fc2)
 
 
 ![55555](https://github.com/user-attachments/assets/69472d91-211c-4980-b078-2f3cfa70cddc)
