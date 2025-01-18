@@ -172,11 +172,6 @@
 ![未命名](https://github.com/user-attachments/assets/1e1e4655-ece7-4a2f-9baf-8b42c6f1ea5e)
 
 
-![2](https://github.com/user-attachments/assets/1ee0a2ac-a997-49cf-8262-53a378b7394f)
-
-
-
-
 
 
 
