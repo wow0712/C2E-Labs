@@ -28,6 +28,10 @@
 
 ![答疑组合图](https://github.com/user-attachments/assets/9997c35f-8d5b-4989-815f-89f0319f912a)
 
+![答疑1](https://github.com/user-attachments/assets/f532742f-50cd-48e7-b24a-2b121b87f9bf)
+![答疑2](https://github.com/user-attachments/assets/b069fd1c-1765-4ea6-810a-73a448daca8b)
+![答疑3](https://github.com/user-attachments/assets/873da44f-c6c5-4f89-8498-79c91868855a)
+
 
 
 
@@ -64,10 +68,11 @@
 #### 很多学员因为迷茫、现实就业情况的失意、来自生活的压力，社区的老师都在耐心的为学员疏导帮助他们找到方向。重新回到正确的学习进度中来
 
 
-
-
-
 ![最年轻的web3学员](https://github.com/user-attachments/assets/46c31137-d6ce-419b-9752-010799c0953a)
+
+
+
+
 
 
 
