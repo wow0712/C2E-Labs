@@ -143,10 +143,6 @@
 
 
 
-![image](https://github.com/user-attachments/assets/fe368da5-f682-4d70-a2fe-c3a3d2c25bd0)
-![image](https://github.com/user-attachments/assets/6e6f63f0-5a6a-4e9b-a0f9-daa636d01be3)
-
-
 
 
 
@@ -156,7 +152,6 @@
 
 
 
-![image](https://github.com/user-attachments/assets/68fff07e-c778-4ac2-86d4-c04cc05a3768)
 
 
 
@@ -167,8 +162,6 @@
 只要接受过C2E社区的学员，都是对社区的服务满意的，很多诋毁的线索就是社区的学员因为看不过去了，主动提供给社区的老师。
 （学员提供线索截图）
 
-![image](https://github.com/user-attachments/assets/bc898860-6c2e-4696-82b4-4a5e07059802)
-![image](https://github.com/user-attachments/assets/8ae95ab0-303c-49d2-92f2-42658379cdd4)
 
 
 
