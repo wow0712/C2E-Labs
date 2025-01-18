@@ -131,24 +131,13 @@
 （老师截图）
 
 ![1](https://github.com/user-attachments/assets/eff92ee0-c409-414a-a8c3-387c895c79db)
-
-
-![image](https://github.com/user-attachments/assets/8e3804b4-3718-4822-9386-dcc5d0043518)
-![image](https://github.com/user-attachments/assets/87e0f94e-2ae4-45a7-bab8-b5dfa05e4735)
-![image](https://github.com/user-attachments/assets/b3839a80-abca-492c-bd91-13804fbe19aa)
-![image](https://github.com/user-attachments/assets/46c05fcd-1fec-4cbf-a9c6-9cb74e45d214)
-![image](https://github.com/user-attachments/assets/31a04bae-0883-4a2d-8909-1226130c8d5b)
-![image](https://github.com/user-attachments/assets/600deaa0-5954-47ee-86b5-511254496734)
-![image](https://github.com/user-attachments/assets/d1dc10f2-78d5-49bb-aa75-f84a3fea62e1)
-![image](https://github.com/user-attachments/assets/7bd9e786-8be3-492d-81e3-98c52aa0534f)
-![image](https://github.com/user-attachments/assets/ca92072f-ae57-4d92-9d2b-ff0c89d73e89)
-![image](https://github.com/user-attachments/assets/d491f279-788a-4e84-b23f-e9109ff676f7)
-![image](https://github.com/user-attachments/assets/c0bd540a-47c8-44eb-a8f7-8b1ee4a37aba)
-![image](https://github.com/user-attachments/assets/75d5847f-cc51-43a0-9573-8c77833bf355)
-![image](https://github.com/user-attachments/assets/ef7be884-acb5-4aa6-a6c8-a5f09578956b)
-![image](https://github.com/user-attachments/assets/e5ccc803-388b-4ebb-bacf-4db6bfc3fd6c)
-![image](https://github.com/user-attachments/assets/95d251eb-753e-42df-b936-070dc79497e0)
-![image](https://github.com/user-attachments/assets/d9a7ca2f-a216-421e-9fae-2f0dc31d3202)
+![2](https://github.com/user-attachments/assets/3bfa7846-2ac8-4a19-aa71-b62078587d9e)
+![3](https://github.com/user-attachments/assets/3daf3a50-b41c-480f-a7b5-f8bf080a4592)
+![4](https://github.com/user-attachments/assets/a2dac773-d5ad-4b8e-9a6b-7b9152e7ab96)
+![5](https://github.com/user-attachments/assets/5433aece-92df-4c85-b664-c3cc80412edb)
+![6](https://github.com/user-attachments/assets/371ba5e3-7d01-4403-b4e0-0e0de9a51624)
+![7](https://github.com/user-attachments/assets/00b60d25-e3a1-4a52-b156-b56808eb5d23)
+![8](https://github.com/user-attachments/assets/7a4e59f6-b3de-43bc-8da5-0f237ce35df2)
 ![image](https://github.com/user-attachments/assets/1af331b5-ffa4-4a3f-b547-6fe5fcc6103d)
 
 
