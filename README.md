@@ -204,7 +204,8 @@
 #### 发布者自己知道他们发布的内容是不真实的，也知道恶意捏造诽谤是违法的行为，所以他怕。
 #### 因为他们试图在国内发过，被警方惩戒过（报警立案截图）。这种蒙蔽不知情者的手段，真是低估了大家的智慧。
 
-![企业微信截图_17372073199461](https://github.com/user-attachments/assets/535cc624-258e-4a24-b08f-a951bf4b603d)
+![2](https://github.com/user-attachments/assets/dce77ed3-528f-43e6-b2c8-9b9a2d158e7f)
+
 
 ![企业微信截图_17371914681702](https://github.com/user-attachments/assets/1e2d82c3-bcad-4028-982a-c8c21696200e)
 
