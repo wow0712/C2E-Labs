@@ -175,7 +175,7 @@
 #### 相信很多人都体验过他们的无耻，只要有新人进社区或者抖音群就有人私信他们，
 #### 发布恶意捏造没有任何证据的诋毁的帖子，混淆视听。
 
-![企业微信截图_17372081205749](https://github.com/user-attachments/assets/302c05a7-bba8-44e9-91a6-c31846a8ef3a)
+![企业微信截图_20250119153317](https://github.com/user-attachments/assets/f3dcd9cb-f130-447f-a21b-f0e9fc9f1a0e)
 
 ![未命名](https://github.com/user-attachments/assets/1e1e4655-ece7-4a2f-9baf-8b42c6f1ea5e)
 
