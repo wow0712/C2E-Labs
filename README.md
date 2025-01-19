@@ -179,8 +179,6 @@
 
 ![未命名](https://github.com/user-attachments/assets/1e1e4655-ece7-4a2f-9baf-8b42c6f1ea5e)
 
-![企业微信截图_17372073199461](https://github.com/user-attachments/assets/6ba99ca7-5985-4a30-810e-1b51787babfd)
-
 
 ###  🧐本身社区就是为了让大家一起交流经验，互相认识的通道
 
